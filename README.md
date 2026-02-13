@@ -44,7 +44,7 @@
 <br>
 
 <p align="center">
-  Im an artist, bone collector, 70's fashion & music enthusiast and a professional getarod/shockstar shipper.This profile is for transformers, but im also really into rdr2, dont starve together, bathan arkham and gotham. <br>
+  Im an artist, bone collector, 70's fashion & music enthusiast and a professional getarod/shockstar shipper. This profile is mostly for the tf fandom, but im also really into rdr2, dont starve together, bathan arkham and gotham. <br>
   Please keep in mind that I am mentally ill and seriously paranoid. Because of that I tend to isolate myself and have a hard time when meeting new people.
 </p>
 
