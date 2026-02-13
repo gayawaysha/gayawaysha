@@ -44,7 +44,7 @@
 <br>
 
 <p align="center">
-  Im an artist, bone collector, 70's fashion & music enthusiast and a professional vanderbell shipper. Really into rdr2 now, but my other interests include: Don't Starve Together, Batman Arkham, Gotham and Transformers. If youre into any of that I'd be more than happy to interact with you.<br>
+  Im an artist, bone collector, 70's fashion & music enthusiast and a professional getarod/shockstar shipper.This profile is for transformers, but im also really into rdr2, dont starve together, bathan arkham and gotham. <br>
   Please keep in mind that I am mentally ill and seriously paranoid. Because of that I tend to isolate myself and have a hard time when meeting new people.
 </p>
 
