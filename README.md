@@ -24,9 +24,11 @@
 <p align="center">𓆩♱𓆪</p>
 
 <p align="center">
+  No, i am NOT a Getaway apologist nor do i associate myself with him. I simply enjoy his character. <br>
   Public chat off, if you want to interact please do that in whispers. If im afk i probably have my whispers disabled, so if you want to reach out to me please sign my ata.<br>
   If theres "no response" in my name - I wont respond. It's not personal. Im just tired, busy or not in the mood to talk. This does not apply to my close friends.<br>
-  Feel free to c+h. As long as you're not covering me I dont have a problem with that.
+  Feel free to c+h. As long as you're not covering me I dont have a problem with that.<br>
+
 </p>
 
 
@@ -44,13 +46,13 @@
 <br>
 
 <p align="center">
-  Im an artist, bone collector, 70's fashion & music enthusiast and a professional getarod/shockstar shipper. This profile is mostly for the tf fandom, but im also really into rdr2, dont starve together, bathan arkham and gotham. <br>
+  Im an artist, taxidermy collector, 70's fashion & music enthusiast and a professional getarod/shockstar shipper. This profile is mostly for the tf fandom, but im also really into rdr2, dont starve together, bathan arkham and gotham. <br>
   Please keep in mind that I am mentally ill and seriously paranoid. Because of that I tend to isolate myself and have a hard time when meeting new people.
 </p>
 
 <p align="center">𓆩♱𓆪</p>
 <p align="center">
-  People under the age of 15, countryhumans fandom, proshippers and MAP's please do not interact. If you are racist, homophobic, trasnphobic or any of those also stay far away from me thank you.<br> <br>
+  Gategate (getaway x tailgate) shippers dni. People under the age of 15, countryhumans fandom, proshippers and MAP's please do not interact either. If you are racist, homophobic, trasnphobic or any of those also stay far away from me thank you.<br> <br>
 
 </p>
 
